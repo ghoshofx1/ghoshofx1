@@ -3,8 +3,7 @@
 I love you, always. 
 Time is nothing.”
 
-― Audrey Niffenegger, The Time Traveler's Wife
+-- Audrey Niffenegger, The Time Traveler's Wife
 
-
----ghoshofx1, 04.07.2022
+--ghoshofx1, 04.07.2022
 
