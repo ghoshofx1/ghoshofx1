@@ -5,5 +5,3 @@ Time is nothing.”
 
 -- Audrey Niffenegger, The Time Traveler's Wife
 
--- Ghoshofx1, 04.07.2022
-
